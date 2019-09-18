@@ -1,3 +1,3 @@
 # pruebaGIT16
-José Ignacio Vega 
-NO MODS TriHard 
+José Ignacio Vega usuario A :)
+
