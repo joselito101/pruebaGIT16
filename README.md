@@ -2,4 +2,4 @@
 José Ignacio Vega usuario A :)
 
 Okayga TeaTime 
-Me llamo Nick Gers
+My name is Nick Gers
