@@ -1,2 +1,3 @@
 # pruebaGIT16
-WideHardo 
+José Ignacio Vega 
+NO MODS TriHard 
